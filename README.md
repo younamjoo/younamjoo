@@ -3,5 +3,5 @@
 - 👋 Hi, I’m @younamjoo
 - 👀 I’m interested in studying and sharing it to others.
 - 🌱 I’m currently learning how to learn better.
-- 📫 younamjoo@gmail.com
+- 📫 hello@younamjoo.com
 
